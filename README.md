@@ -2,18 +2,7 @@
 
 ## Quick Start
 
-```bash
-git clone https://github.com/rhildred/UX220Assignment2 .
-npm install
-npm start
-```
-
-or surf to [https://diy-pwa.dev](https://diy-pwa.dev/~/gh/rhildred/UX220Assignment2). 
-
-```bash
-npm install
-npm start
-```
+Make a new repository and open in a codespace. Use `open with live server` to preview your work. When you are done, please create a link as you did for assignment 1.
 
 This is for UX220 at Wilfrid Laurier University. 
 
