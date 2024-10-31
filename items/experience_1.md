@@ -1,1 +1,2 @@
-Experience 1 here
+
+Winning the Laurier Case Competiton in March 2024. What was so good about it was the sheer will and determination it took to come up with a grand and professional solution. My favourite memory was staying up for majority of the night and putting my all into work. I have never done something like this before in my life and it was a great experience. What I did not like about it was the sheer pressure and time constraints. I had memorized my part of the presentation only five minutes before we went on stage. I would give this experience an A because we won.  

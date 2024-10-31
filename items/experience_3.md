@@ -1,1 +1,1 @@
-Experience 3 here
+I played as a member of the Aurora Jays and helped my team win the Ontario Baseball Finals. I was 11 years old, during the summer of 2016. What was good was the excitement of playing in high pressure games and the feeling of teamwork brought us closer together. My favourite memory was whhen we celebrated on the field after the final out, cheering and hugging my teammates. What I thought was bad was I felt nervous during the championship game, worrying about letting my team down. Overall I would give the experience an A because of the memories it created. 

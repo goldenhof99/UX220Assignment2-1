@@ -1,1 +1,1 @@
-Experience 4 here
+Another experience was moving into Expositor place at Wilfred Laurier University. I moved in early September, 2024. What was good about this experience was my first taste of freedom not being around my parents. My favourite memory was meeting two of my current friends who were my roomates in that dorm. What was bad about this experience was I got home sick and missed my family and friends from back home. Overall I would give this experience a B. 
